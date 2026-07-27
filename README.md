@@ -15,6 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
+<img width="500" height="261" alt="picgifs-final-fantasy-x-9531552" src="https://github.com/user-attachments/assets/6b8ceb7c-b2ec-4631-95b6-feaa897d604a" />
 
 ★ What I think? ✮⋆˙
 
