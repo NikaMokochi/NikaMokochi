@@ -50,7 +50,7 @@ Here are some ideas to get you started:
 
    ⋆˚࿔ ok then... u can signs ata and sp for me! ༘⋆
    
-  ˚₊‧꒰ა  [ATA](https://nikamokochi.atabook.org/)  [STRAWPAGE](https://nikamokochii.straw.page/)  [Guns.lol](https://guns.lol/nikamokochi)  ໒꒱ ‧₊˚
+  ˚₊‧꒰ა  [ATA](https://nikamokochi.atabook.org/) ✦ [STRAWPAGE](https://nikamokochii.straw.page/) ✦ [Guns.lol](https://guns.lol/nikamokochi)  ໒꒱ ‧₊˚
 
 <img width="200" height="120" alt="picgifs-final-fantasy-x-9531552" src="https://github.com/user-attachments/assets/9d0daf9b-84d5-4647-80eb-2fe60e593789" /> <img width="500" height="190" alt="picgifs-final-fantasy-x-9531552" src="https://github.com/user-attachments/assets/a473dfed-0720-4835-af52-38ee03e0b8cc" />
 
