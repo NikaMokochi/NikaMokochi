@@ -1,4 +1,4 @@
-## Hi there 👋
+## ₊˚⊹♡ My fan Final Fantasy X/X-2 and Kingdom Hearts Birth by Sleepy ⋆˚࿔
 
 <!--
 **NikaMokochi/NikaMokochi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
