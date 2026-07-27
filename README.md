@@ -40,7 +40,7 @@ Here are some ideas to get you started:
 <img width="200" height="120" alt="picgifs-final-fantasy-x-4066581" src="https://github.com/user-attachments/assets/952af331-61d8-4077-af9d-b204df49ce42" /> <img width="500" height="281" alt="picgifs-final-fantasy-x-9531552" src="https://github.com/user-attachments/assets/ffb93e72-793e-43ce-8d0b-5fac88820192" />
 
 
-♡ my fan Final Fantasy X/X-2 and Kingdom Hearts Birth By Sleepy ♡ ദ്ദി ˙ᗜ˙!!
+♡ my fan Final Fantasy and Kingdom Hearts okay!! ♡ ദ്ദി ˙ᗜ˙!!
 
 
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
@@ -49,6 +49,7 @@ Here are some ideas to get you started:
 
 
    ⋆˚࿔ ok then... u can signs ata and sp for me! ༘⋆
+   [ATA]{https://nikamokochi.atabook.org/}  [STRAWPAGE]{https://nikamokochii.straw.page/}  [Guns.lol]{https://guns.lol/nikamokochi}
 
 <img width="200" height="120" alt="picgifs-final-fantasy-x-9531552" src="https://github.com/user-attachments/assets/9d0daf9b-84d5-4647-80eb-2fe60e593789" /> <img width="500" height="190" alt="picgifs-final-fantasy-x-9531552" src="https://github.com/user-attachments/assets/a473dfed-0720-4835-af52-38ee03e0b8cc" />
 
