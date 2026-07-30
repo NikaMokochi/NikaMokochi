@@ -1,4 +1,4 @@
-## ₊˚⊹♡ My fan Final Fantasy X/X-2 and Kingdom Hearts Birth by Sleepy ⋆˚࿔
+## ₊˚⊹♡ WIP!! ⋆˚࿔
 
 <!--
 **NikaMokochi/NikaMokochi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -15,13 +15,13 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-<img width="500" height="261" alt="picgifs-final-fantasy-x-9531552" src="https://github.com/user-attachments/assets/6b8ceb7c-b2ec-4631-95b6-feaa897d604a" />
+<https://i.pinimg.com/1200x/20/5f/e6/205fe6622b440667337f2f6b654ff541.jpg>
 
 ★ What I think? ✮⋆˙
 
 °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･ °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･ °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
 
-<img width="245" height="157" alt="picgifs-persona-3-3417811" src="https://github.com/user-attachments/assets/3ecda41f-0285-44fd-adaf-f88f08422c06" /> <img width="245" height="186" alt="picgifs-final-fantasy-x-136321" src="https://github.com/user-attachments/assets/235a5dff-80e4-499d-8573-89e43c4dd8e1" />
+<https://i.pinimg.com/1200x/71/cb/5c/71cb5c9c96ae87795e8cb216b01aa552.jpg>
 
 
   ★ uhm.. I saw my dream... ✮⋆˙ ⋆｡°·☁︎
