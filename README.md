@@ -29,25 +29,18 @@ Here are some ideas to get you started:
 
    ★ I'm sorry... I know miss them... ✮⋆˙ ૮ ◞ ﻌ ◟ ა
 
-<img width="200" height="120" alt="picgifs-final-fantasy-x-114103" src="https://github.com/user-attachments/assets/a250819f-0bab-4f61-9748-fbb60930e321" /> <img width="500" height="281" alt="picgifs-final-fantasy-x-136321" src="https://github.com/user-attachments/assets/6e8e57bb-55e8-4d07-8edf-220be3fc009c" />
-
-
-   ★ but.. I'm not crine... I'm okay... ✮⋆˙  ;´ - `;
-
-<img width="245" height="177" alt="picgifs-kingdom-hearts-birth-by-sleep-3754713" src="https://github.com/user-attachments/assets/3b580f33-2185-4c14-b3ac-83eb9fe5f1fb" />
+<img width="716" height="374" alt="hello" src="https://github.com/user-attachments/assets/455308cc-a247-4edf-9d66-e21c9899aa5f" />
 
    ★ well... I'll saw them... Noctis?... Luna?... both... ✮⋆˙ 🪼⋆.ೃ࿔*:･
 
-<img width="200" height="120" alt="picgifs-final-fantasy-x-4066581" src="https://github.com/user-attachments/assets/952af331-61d8-4077-af9d-b204df49ce42" /> <img width="500" height="281" alt="picgifs-final-fantasy-x-9531552" src="https://github.com/user-attachments/assets/ffb93e72-793e-43ce-8d0b-5fac88820192" />
+<img width="540" height="230" alt="picgifs-final-fantasy-x-136321" src="https://github.com/user-attachments/assets/8198eb9d-22c4-4fad-9325-84c378356ba0" />
 
-
-♡ my fan Final Fantasy and Kingdom Hearts okay!! ♡ ദ്ദി ˙ᗜ˙!!
+♡ my fan Final Fantasy XV okay!! ♡ ദ്ദി ˙ᗜ˙!!
 
 
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ✩₊˚.⋆☾⋆⁺₊✧ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
-<img width="200" height="120" alt="picgifs-final-fantasy-x-136321" src="https://github.com/user-attachments/assets/d47f53e4-0fee-4ab3-9239-3a821fc08265" /> <img width="500" height="190" alt="picgifs-final-fantasy-x-136321" src="https://github.com/user-attachments/assets/dcdf071a-dcc8-4aed-9b42-c80de795c36e" />
-
+<img width="500" height="230" alt="picgifs-final-fantasy-x-9531552" src="https://github.com/user-attachments/assets/6c457fdc-943b-45f4-bdd3-75a86d2ff278" />
 
    ⋆˚࿔ ok then... u can signs ata and sp for me! ༘⋆
    
