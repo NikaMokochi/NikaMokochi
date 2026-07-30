@@ -15,19 +15,17 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-<https://i.pinimg.com/1200x/20/5f/e6/205fe6622b440667337f2f6b654ff541.jpg>
+<img width="1029" height="576" alt="Sora kh1" src="https://github.com/user-attachments/assets/eeebe998-7942-4df8-8494-13e13ad5d8ce" />
 
 ★ What I think? ✮⋆˙
 
 °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･ °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･ °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
 
-<https://i.pinimg.com/1200x/71/cb/5c/71cb5c9c96ae87795e8cb216b01aa552.jpg>
-
+<img width="1325" height="501" alt="bruh guys" src="https://github.com/user-attachments/assets/c8882b3a-8b96-42c5-a7be-199071ab5d9a" />
 
   ★ uhm.. I saw my dream... ✮⋆˙ ⋆｡°·☁︎
 
-<img width="250" height="141" alt="picgifs-final-fantasy-ix-9681171" src="https://github.com/user-attachments/assets/07cbf95b-2c44-4d70-8062-8bce77107bae" /> <img width="500" height="200" alt="picgifs-final-fantasy-x-9531552" src="https://github.com/user-attachments/assets/fdb00705-e5d9-4b17-8053-ba88141f4923" />
-
+<img width="1092" height="596" alt="hello" src="https://github.com/user-attachments/assets/bb22c016-0a6d-40e7-b6e6-df938db11106" />
 
    ★ I'm sorry... I know miss them... ✮⋆˙ ૮ ◞ ﻌ ◟ ა
 
@@ -38,7 +36,7 @@ Here are some ideas to get you started:
 
 <img width="245" height="177" alt="picgifs-kingdom-hearts-birth-by-sleep-3754713" src="https://github.com/user-attachments/assets/3b580f33-2185-4c14-b3ac-83eb9fe5f1fb" />
 
-   ★ well... I'll saw them... Yuna?... Aqua?... both... ✮⋆˙ 🪼⋆.ೃ࿔*:･
+   ★ well... I'll saw them... Noctis?... Luna?... both... ✮⋆˙ 🪼⋆.ೃ࿔*:･
 
 <img width="200" height="120" alt="picgifs-final-fantasy-x-4066581" src="https://github.com/user-attachments/assets/952af331-61d8-4077-af9d-b204df49ce42" /> <img width="500" height="281" alt="picgifs-final-fantasy-x-9531552" src="https://github.com/user-attachments/assets/ffb93e72-793e-43ce-8d0b-5fac88820192" />
 
