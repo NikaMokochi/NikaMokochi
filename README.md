@@ -1,4 +1,4 @@
-## ₊˚⊹♡ WIP!! ⋆˚࿔
+## ₊˚⊹♡ Kings of Lucis ⋆˚࿔
 
 <!--
 **NikaMokochi/NikaMokochi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -37,7 +37,6 @@ Here are some ideas to get you started:
 
 ♡ my fan Final Fantasy XV okay!! ♡ ദ്ദി ˙ᗜ˙!!
 
-
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ✩₊˚.⋆☾⋆⁺₊✧ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
 <img width="500" height="230" alt="picgifs-final-fantasy-x-9531552" src="https://github.com/user-attachments/assets/6c457fdc-943b-45f4-bdd3-75a86d2ff278" />
@@ -46,8 +45,6 @@ Here are some ideas to get you started:
    
 ˙⋆✮⋆˚࿔  ˚₊‧꒰ა  [Ata](https://nikamokochi.atabook.org/) ✦ [StrawPage](https://nikamokochii.straw.page/) ✦ [Guns.lol](https://guns.lol/nikamokochi)  ໒꒱ ‧₊˚ ˙⋆✮⋆˚࿔
 
-<img width="200" height="120" alt="picgifs-final-fantasy-x-9531552" src="https://github.com/user-attachments/assets/9d0daf9b-84d5-4647-80eb-2fe60e593789" /> <img width="500" height="190" alt="picgifs-final-fantasy-x-9531552" src="https://github.com/user-attachments/assets/a473dfed-0720-4835-af52-38ee03e0b8cc" />
-
-
+<img width="500" height="210" alt="picgifs-final-fantasy-x-136321" src="https://github.com/user-attachments/assets/6f71ac60-f734-48e2-8b98-21a7981c8550" />
 
 °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡
