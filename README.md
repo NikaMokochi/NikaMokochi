@@ -15,21 +15,25 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-<img width="734" height="415" alt="hello" src="https://github.com/user-attachments/assets/d335ea66-f39e-4d1b-849a-18fdcef37619" />
+<img width="736" height="415" alt="cosplay" src="https://github.com/user-attachments/assets/f6d2db0e-c5d2-473c-9203-433450a9109c" />
 
-★ I'm sorry Andrew... I... ✮⋆˙
+★ Intro? ✮⋆˙
 
 °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･ °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･ °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
 
- ★ uhm... yeah, I'm lying kill you...
+ ★ call me Nika/ Nikou/ Noctis/ Noct/ Lavie/ Laville/ Pizza Guy
 
- ★ I'm sorry... I'm... I'M WRONG!!
+ ★ She/Her/They/Them
  
- ★ hah... yeah... yeah...
+ ★ did can speak Eng and Viet
+
+ ★ a lot of my fandoms on my strawpage okay :D
+ 
+ ★ and don't copy my skin 「will hide skin ok?」
 
 <img width="735" height="412" alt="help lol" src="https://github.com/user-attachments/assets/068c2d4b-5a39-48cf-8056-740bed45562b" />
 
- ★ I'll die...
+ ★ ehh.... write my intro so far okay...
 
 . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ✩₊˚.⋆☾⋆⁺₊✧ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
 
@@ -38,6 +42,6 @@ Here are some ideas to get you started:
    
 ˙⋆✮⋆˚࿔  ˚₊‧꒰ა  [Ata](https://nikamokochi.atabook.org/) ✦ [StrawPage](https://nikamokochii.straw.page/) ✦ [Guns.lol](https://guns.lol/nikamokochi)  ໒꒱ ‧₊˚ ˙⋆✮⋆˚࿔
 
-<img width="500" height="500" alt="pony-town-Pizza Guy _ PGB (rmk)-boop-sit-blinking-padded-toy470-4x" src="https://github.com/user-attachments/assets/ae42fb1d-6390-411e-8b19-5c3fb503a708" />
+<img width="734" height="415" alt="hello" src="https://github.com/user-attachments/assets/31c4a9a4-b583-4937-a34b-9f818d533496" />
 
 °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡
