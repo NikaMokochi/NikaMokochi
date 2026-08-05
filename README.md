@@ -23,7 +23,7 @@ Here are some ideas to get you started:
 
  ★ uhm... yeah, I'm lying kill you...
 
- ★ I'm sorry... I'm... I;M WRONG!!
+ ★ I'm sorry... I'm... I'M WRONG!!
  
  ★ hah... yeah... yeah...
 
