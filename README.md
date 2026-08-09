@@ -17,8 +17,7 @@ Here are some ideas to get you started:
 
 <img width="736" height="415" alt="cosplay" src="https://github.com/user-attachments/assets/f6d2db0e-c5d2-473c-9203-433450a9109c" />
 
-[![Spotify](https://shields.io)](https://open.spotify.com/track/3aiBynwuFo2O6Tik6GussC)
-
+[![Spotify](https://img.shields.io/badge/Listen%20on%20Spotify-1DB954?style=for-the-badge&logo=spotify&logoColor=white)](https://open.spotify.com/track/3aiBynwuFo2O6Tik6GussC)
 
 ★ Intro? ✮⋆˙
 
