@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 
 ִ‧₊˚♪ 𝄞₊˚⊹ 🪽་༘࿐𝄞𝄢℘ ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10 ‧₊˚♪ 𝄞₊ ♫ ˚⊹ •*¨*•.¸¸♬︎
 
-[![spotify-github-profile](https://open.spotify.com/track/3aiBynwuFo2O6Tik6GussC) ◀ u can click my fav best music! yaaaaa~ ❤︎ ..◜ᴗ◝..
+[![spotify-github-profile](https://open.spotify.com/collection/tracks) ◀ u can click my fav best music! yaaaaa~ ❤︎ ..◜ᴗ◝..
 
 ★ Intro? ✮⋆˙
 
