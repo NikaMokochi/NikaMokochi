@@ -19,8 +19,7 @@ Here are some ideas to get you started:
 
 ִ‧₊˚♪ 𝄞₊˚⊹ 🪽་༘࿐𝄞𝄢℘ ▶︎ •၊၊||၊|။||||။‌‌‌‌‌၊|• 0:10 ‧₊˚♪ 𝄞₊ ♫ ˚⊹ •*¨*•.¸¸♬︎
 
-[<img width="427" height="237" alt="Cloud 1" src="https://github.com/user-attachments/assets/7006fdcc-de6b-4a86-b3ec-4e2e32d51861" />
-](https://open.spotify.com/track/3aiBynwuFo2O6Tik6GussC) ◀ u can click my fav best music! yaaaaa~ ❤︎ ..◜ᴗ◝..
+[![spotify-github-profile](https://open.spotify.com/track/3aiBynwuFo2O6Tik6GussC) ◀ u can click my fav best music! yaaaaa~ ❤︎ ..◜ᴗ◝..
 
 ★ Intro? ✮⋆˙
 
