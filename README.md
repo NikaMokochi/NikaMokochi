@@ -29,7 +29,8 @@ Here are some ideas to get you started:
    
 ˙⋆✮⋆˚࿔  ˚₊‧꒰ა  [<img width="266" height="84" alt="Sora kh1" src="https://github.com/user-attachments/assets/5f37e68a-ad25-4fb8-b9b0-010c24ed0ba9" />
 ](https://nikamokochi.atabook.org/) ✦ [<img width="335" height="110" alt="help lol" src="https://github.com/user-attachments/assets/0a8b92e7-f779-4b46-a941-6f45498136c5" />
-](https://nikamokochii.straw.page/) ✦ [Guns.lol](https://guns.lol/nikamokochi)  ໒꒱ ‧₊˚ ˙⋆✮⋆˚࿔
+](https://nikamokochii.straw.page/) ✦ [<img width="238" height="91" alt="Sora kh1" src="https://github.com/user-attachments/assets/ad7f0920-513a-46f1-afe0-68dcd380c7a3" />
+](https://guns.lol/nikamokochi)  ໒꒱ ‧₊˚ ˙⋆✮⋆˚࿔
 
 <img width="734" height="415" alt="hello" src="https://github.com/user-attachments/assets/31c4a9a4-b583-4937-a34b-9f818d533496" />
 
