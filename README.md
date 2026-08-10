@@ -22,7 +22,7 @@ $\color{#ff759d}{\text{⋆˚࿔────────────────�
 [<img width="427" height="237" alt="Cloud 1" src="https://github.com/user-attachments/assets/80cdf830-2ad3-4100-b762-d6c65a09dc9f" />
 ](https://open.spotify.com/track/3aiBynwuFo2O6Tik6GussC) ◀ u can click my fav best music! yaaaaa~ ❤︎ ..◜ᴗ◝..
 
-. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ✩₊˚.⋆☾⋆⁺₊✧ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+$\color{#c3eeff}{\text{. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ✩₊˚.⋆☾⋆⁺₊✧ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.}}$
 
 
    $\color{#5c52ff}{\text{⋆˚࿔ ok then... u can signs ata and sp for me! ༘⋆}}$
@@ -38,4 +38,4 @@ $\color{#ff527a}{\text{꒰১ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ
 
 $\color{#4136c1}{\text{⋆.˚ ☾⭒. that's my art btw... yea... I miss my old Idol... ✮⋆˙}}$
 
-$\color{#a5efff}{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡}}$
+$\color{#a5efff}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡}}$
