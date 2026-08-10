@@ -32,6 +32,8 @@ Here are some ideas to get you started:
 ](https://nikamokochii.straw.page/) ✦ [<img width="238" height="91" alt="Sora kh1" src="https://github.com/user-attachments/assets/ad7f0920-513a-46f1-afe0-68dcd380c7a3" />
 ](https://guns.lol/nikamokochi)  ໒꒱ ‧₊˚ ˙⋆✮⋆˚࿔
 
+꒰১ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ໒꒱
+
 <img width="1920" height="1080" alt="1add8202c3f771ab46ddc31f99fa1067" src="https://github.com/user-attachments/assets/719cd2c7-5995-4feb-8d7c-a7a4a1f3b46c" />
 
 ⋆.˚ ☾⭒. that's my art btw... yea... I miss my old Idol... ✮⋆˙
