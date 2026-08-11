@@ -14,6 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
 <div align="center">
 
 ![GitHub Views](https://views.igorkowalczyk.dev/api/badge/NikaMokochi?label=Pizza+for+you+yayayayyy&labelColor=ff5775&color=c93a54)
