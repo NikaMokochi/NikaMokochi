@@ -38,8 +38,8 @@ $\color{#ff2a7f}{\text{˙⋆✮⋆˚࿔  ˚₊‧꒰ა}}$  [<img width="266" he
 
 $\color{#ff527a}{\text{꒰১ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ໒꒱}}$
 
-<img width="1920" height="1080" alt="1add8202c3f771ab46ddc31f99fa1067" src="https://github.com/user-attachments/assets/719cd2c7-5995-4feb-8d7c-a7a4a1f3b46c" />
+<img width="3840" height="2160" alt="Cloud 2" src="https://github.com/user-attachments/assets/0e2d7354-e1ce-4061-9f70-7a66d78aa583" />
 
-$\color{#4136c1}{\text{⋆.˚ ☾⭒. that's my art btw... yea... I miss my old Idol... ✮⋆˙}}$
+$\color{#4136c1}{\text{⋆.˚ ☾⭒. that's my art btw... yea, new my style ofc :'333 ✮⋆˙}}$
 
 $\color{#a5efff}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡}}$
