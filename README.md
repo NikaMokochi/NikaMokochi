@@ -19,7 +19,7 @@ Here are some ideas to get you started:
 
 ![GitHub Views](https://views.igorkowalczyk.dev/api/badge/NikaMokochi?label=Pizza+for+you+yayayayyy&labelColor=ff5775&color=c93a54)
 
-<img width="2048" height="2007" alt="intro" src="https://github.com/user-attachments/assets/163023ab-7cec-40ec-b828-2db877b2938a" />
+<img width="2048" height="1536" alt="country" src="https://github.com/user-attachments/assets/365beac8-d07c-4d37-a734-6f2a5d1e3b5a" />
 
 $\color{#ff759d}{\text{⋆˚࿔───────────────────୨ৎ───────────────────₊˚⊹♡}}$
 
