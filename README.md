@@ -38,8 +38,8 @@ $\color{#ff2a7f}{\text{˙⋆✮⋆˚࿔  ˚₊‧꒰ა}}$  [<img width="266" he
 
 $\color{#ff527a}{\text{꒰১ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ໒꒱}}$
 
-<img width="3840" height="2160" alt="Cloud 2" src="https://github.com/user-attachments/assets/0e2d7354-e1ce-4061-9f70-7a66d78aa583" />
+<img width="579" height="325" alt="memes KH p1" src="https://github.com/user-attachments/assets/738572f8-99d7-4ecc-bc3f-d3b8ec84401b" />
 
-$\color{#4136c1}{\text{⋆.˚ ☾⭒. that's my art btw... yea, new my style ofc :'333 ✮⋆˙}}$
+$\color{#4136c1}{\text{⋆.˚ ☾⭒. welp... Ivan is me ofc... and Pizza Guy is Silly ✮⋆˙}}$
 
 $\color{#a5efff}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡}}$
