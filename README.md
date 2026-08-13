@@ -38,8 +38,8 @@ $\color{#ff2a7f}{\text{˙⋆✮⋆˚࿔  ˚₊‧꒰ა}}$  [<img width="266" he
 
 $\color{#ff527a}{\text{꒰১ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ໒꒱}}$
 
-<img width="579" height="325" alt="memes KH p1" src="https://github.com/user-attachments/assets/738572f8-99d7-4ecc-bc3f-d3b8ec84401b" />
+<img width="1920" height="1080" alt="cosplay" src="https://github.com/user-attachments/assets/0cf760d8-e360-40d8-b2c3-6cdd0219e312" />
 
-$\color{#4136c1}{\text{⋆.˚ ☾⭒. welp... Ivan is me ofc... and Pizza Guy is Silly ✮⋆˙}}$
+$\color{#4136c1}{\text{⋆.˚ ☾⭒. idk draw my intro lol :'33 ✮⋆˙}}$
 
 $\color{#a5efff}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡}}$
