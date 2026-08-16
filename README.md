@@ -42,8 +42,8 @@ $\color{#ff527a}{\text{꒰১ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ
 
 $\color{#4136c1}{\text{⋆.˚ ☾⭒. thanks gift for me!! ✮⋆˙}}$
 
-$\color{#ff854a}{\text{★ˎˊ˗ Pizza Guy and Yozora by [@andreslopper](https://github.com/andreslopper)}}$
+$\color{#ff854a}{\text{★ˎˊ˗ Pizza Guy and Yozora by}}$ [@andreslopper](https://github.com/andreslopper)
 
-$\color{#4a68ff}{\text{★ˎˊ˗ Pizza guy by [@OlgaSinxer](https://github.com/OlgaSinxer)}}$
+$\color{#4a68ff}{\text{★ˎˊ˗ Pizza guy by}}$ [@OlgaSinxer](https://github.com/OlgaSinxer)
 
 $\color{#a5efff}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡}}$
