@@ -42,8 +42,8 @@ $\color{#ff527a}{\text{꒰১ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ
 
 $\color{#4136c1}{\text{⋆.˚ ☾⭒. thanks gift for me!! ✮⋆˙}}$
 
-$\color{ff854a}{\text{Pizza Guy and Yozzora by @andreslopper}}$
+$\color{#ff854a}{\text{Pizza Guy and Yozzora by @andreslopper}}$
 
-$\color{4a68ff}{\text{Pizza guy by @OlgaSinxer}}$
+$\color{#4a68ff}{\text{Pizza guy by @OlgaSinxer}}$
 
 $\color{#a5efff}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡}}$
