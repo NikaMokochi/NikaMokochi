@@ -23,8 +23,7 @@ Here are some ideas to get you started:
 
 $\color{#ff759d}{\text{⋆˚࿔───────────────────୨ৎ───────────────────₊˚⊹♡}}$
 
-[<img width="427" height="237" alt="Cloud 1" src="https://github.com/user-attachments/assets/80cdf830-2ad3-4100-b762-d6c65a09dc9f" />
-](https://open.spotify.com/track/3aiBynwuFo2O6Tik6GussC) $\color{#c3eeff}{\text{◀ u can click my fav best music! yaaaaa~ ❤︎ ..◜ᴗ◝..}}$
+[<img width="540" height="280" alt="Riku" src="https://github.com/user-attachments/assets/606484ce-a92d-466f-af73-1f6d2850165e" />](https://open.spotify.com/playlist/2tEuXKxWfOAiWdnst62ybF) $\color{#7dffa1}{\text{◀ u can click my fav best music! yaaaaa~ ❤︎ ..◜ᴗ◝..}}$
 
 $\color{#c3eeff}{\text{. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ✩₊˚.⋆☾⋆⁺₊✧ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.}}$
 
