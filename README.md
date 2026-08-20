@@ -38,7 +38,7 @@ $\color{#ff2a7f}{\text{˙⋆✮⋆˚࿔  ˚₊‧꒰ა}}$  [<img width="266" he
 
 $\color{#ff527a}{\text{꒰১ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ໒꒱}}$
 
-<img width="1920" height="1080" alt="cosplay" src="https://github.com/user-attachments/assets/0cf760d8-e360-40d8-b2c3-6cdd0219e312" />
+<img width="2000" height="1200" alt="country" src="https://github.com/user-attachments/assets/2358d16e-f2ce-48c2-afb6-99fdfe9b999a" />
 
 $\color{#4136c1}{\text{⋆.˚ ☾⭒. thanks gift for me!! ✮⋆˙}}$
 
