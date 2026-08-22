@@ -52,4 +52,4 @@ $\color{#a5efff}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹
 
 $\color{#7084ea}{\text{OH MY?? TYSM ANDRE (@andreslopper) yippeeeeee!!}}$
 
-$\color{#ff6afb}{\text{°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･}}$
+$\color{#ff6afb}{\text{*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚}}$
