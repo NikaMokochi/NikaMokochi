@@ -51,3 +51,5 @@ $\color{#a5efff}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹
 <img width="1083" height="1087" alt="intro" src="https://github.com/user-attachments/assets/827d4f8a-b918-4f42-8c22-61de0eb4d420" />
 
 $\color{#7084ea}{\text{OH MY?? TYSM ANDRE (@andreslopper) yippeeeeee!!}}$
+
+$\color{#ff6afb}{\text{°❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･}}$
