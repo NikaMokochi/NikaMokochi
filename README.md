@@ -17,6 +17,8 @@ Here are some ideas to get you started:
 
 <div align="center">
 
+[<img width="383" height="115" alt="chiikawa" src="https://github.com/user-attachments/assets/6703d1e9-ae6e-4be0-9bdd-cd2889a24aa6" />](https://nikasartcomm.straw.page/)
+
 ![GitHub Views](https://views.igorkowalczyk.dev/api/badge/NikaMokochi?label=Pizza+for+you+yayayayyy&labelColor=ff5775&color=c93a54)
 
 <img width="2048" height="1536" alt="country" src="https://github.com/user-attachments/assets/365beac8-d07c-4d37-a734-6f2a5d1e3b5a" />
