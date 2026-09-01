@@ -57,4 +57,5 @@ $\color{#7084ea}{\text{OH MY?? TYSM ANDRE (@andreslopper) yippeeeeee!!}}$
 <img width="976" height="740" alt="hello" src="https://github.com/user-attachments/assets/50c2bf68-2fb3-42d6-bbbb-a9b1793db0e6" />
 
 $\color{#7084ea}{\text{TYSM SINX (@OlgaSinxer) MY GAH}}$
+
 $\color{#ff6afb}{\text{*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚}}$
