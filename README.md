@@ -50,6 +50,9 @@ $\color{#4a68ff}{\text{★ˎˊ˗ Pizza guy by}}$ [@OlgaSinxer](https://github.co
 
 $\color{#a5efff}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡}}$
 
+<details>
+<summabry>$\color{#7084ea}{\text{thank for my fan Pizza Guy!!}}$</summabry><br>
+
 <img width="1083" height="1087" alt="intro" src="https://github.com/user-attachments/assets/827d4f8a-b918-4f42-8c22-61de0eb4d420" />
 
 $\color{#7084ea}{\text{OH MY?? TYSM ANDRE (@andreslopper) yippeeeeee!!}}$
@@ -59,3 +62,4 @@ $\color{#7084ea}{\text{OH MY?? TYSM ANDRE (@andreslopper) yippeeeeee!!}}$
 $\color{#7084ea}{\text{TYSM SINX (@OlgaSinxer) MY GAH}}$
 
 $\color{#ff6afb}{\text{*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚}}$
+</details>
