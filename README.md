@@ -21,7 +21,7 @@ soon...
 
 ![GitHub Views](https://views.igorkowalczyk.dev/api/badge/NikaMokochi?label=Pizza+for+you+yayayayyy&labelColor=ff5775&color=c93a54)
 
-<img width="2048" height="1536" alt="country" src="https://github.com/user-attachments/assets/365beac8-d07c-4d37-a734-6f2a5d1e3b5a" />
+<img width="2048" height="1536" alt="intro" src="https://github.com/user-attachments/assets/5777c735-de70-4b0d-9648-08d6979958a4" />
 
 $\color{#ff759d}{\text{⋆˚࿔───────────────────୨ৎ───────────────────₊˚⊹♡}}$
 
