@@ -46,7 +46,7 @@ $\color{#ff527a}{\text{꒰১ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ
  <details>
 <summary> $\color{#4136c1}{\text{⋆.˚ ☾⭒. thanks gift for me!! ✮⋆˙}}$ </summary><br>
 
-$\color{#ff854a}{\text{★ˎˊ˗ Pizza Guy and Yozora by}}$ [@andreslopper](https://github.com/andreslopper)
+$\color{#ff854a}{\text{★ˎˊ˗ Pizza Guy, Yozora and Ivan (Bad Things) by}}$ [@andreslopper](https://github.com/andreslopper)
 
 $\color{#4a68ff}{\text{★ˎˊ˗ Pizza guy by}}$ [@OlgaSinxer](https://github.com/OlgaSinxer)
 </details>
