@@ -54,7 +54,7 @@ $\color{#4a68ff}{\text{★ˎˊ˗ Pizza guy by}}$ [@OlgaSinxer](https://github.co
 $\color{#a5efff}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡}}$
 
  <details>
-<summary> $\color{#7084ea}{\text{thank for my fan Pizza Guy!!}}$ </summary><br>
+<summary> $\color{#7084ea}{\text{thank for my fan Pizza Guy and my sona!!}}$ </summary><br>
 
 <img width="1083" height="1087" alt="intro" src="https://github.com/user-attachments/assets/827d4f8a-b918-4f42-8c22-61de0eb4d420" />
 
@@ -64,5 +64,13 @@ $\color{#7084ea}{\text{OH MY?? TYSM ANDRE (@andreslopper) yippeeeeee!!}}$
 
 $\color{#7084ea}{\text{TYSM SINX (@OlgaSinxer) MY GAH}}$
 
-$\color{#ff6afb}{\text{*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚}}$
+<img width="2048" height="2048" alt="art" src="https://github.com/user-attachments/assets/106400b5-09b6-4f17-a197-3d1a53921c2a" />
+
+$\color{#7084ea}{\text{OH?? I LUV MY SONA AND TYSM LÔI (@R3QUI3MSINN3R) YAYYYYYYYYY}}$
+ <details>
+<summary>$\color{#f86e90}{\text{haihaiiii my oomfs!!!!!!}}$ </summary><br>
+
+⋆˚✿˖° [Lôi](https://github.com/R3QUI3MSINN3R) [Haru](https://github.com/D3V0TION) [Liliana](https://github.com/HerWordsKill) [Namine](https://github.com/farronhart) [Andre](https://github.com/andreslopper) [Sinx](https://github.com/OlgaSinxer) [Silly](https://github.com/SillyNonbinary) [Lily](https://github.com/Lily2Love) [Ash](https://github.com/vampxasher) [Noctis](https://github.com/CrisisShow) 
 </details>
+
+$\color{#ff6afb}{\text{*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚}}$
