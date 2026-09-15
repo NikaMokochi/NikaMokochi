@@ -67,7 +67,7 @@ $\color{#7084ea}{\text{TYSM SINX (@OlgaSinxer) MY GAH}}$
 <img width="2048" height="2048" alt="art" src="https://github.com/user-attachments/assets/106400b5-09b6-4f17-a197-3d1a53921c2a" />
 
  $\color{#7084ea}{\text{OH?? I LUV MY SONA AND TYSM LÔI (@R3QUI3MSINN3R) YAYYYYYYYYY}}$
-</detalis>
+</details>
 
  <details>
 <summary> $\color{#f86e90}{\text{haihaiiii my oomfs!!!!!!}}$ </summary><br>
