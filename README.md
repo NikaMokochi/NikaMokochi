@@ -48,7 +48,7 @@ $\color{#ff527a}{\text{꒰১ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ
 
 $\color{#ff854a}{\text{★ˎˊ˗ Pizza Guy, Yozora and Ivan (Bad Things) by}}$ [@andreslopper](https://github.com/andreslopper)
 
-$\color{#4a68ff}{\text{★ˎˊ˗ Pizza guy by}}$ [@OlgaSinxer](https://github.com/OlgaSinxer)
+ $\color{#4a68ff}{\text{★ˎˊ˗ Pizza guy by}}$ [@OlgaSinxer](https://github.com/OlgaSinxer)
 </details>
 
 $\color{#a5efff}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡}}$
@@ -66,13 +66,13 @@ $\color{#7084ea}{\text{TYSM SINX (@OlgaSinxer) MY GAH}}$
 
 <img width="2048" height="2048" alt="art" src="https://github.com/user-attachments/assets/106400b5-09b6-4f17-a197-3d1a53921c2a" />
 
-$\color{#7084ea}{\text{OH?? I LUV MY SONA AND TYSM LÔI (@R3QUI3MSINN3R) YAYYYYYYYYY}}$
+ $\color{#7084ea}{\text{OH?? I LUV MY SONA AND TYSM LÔI (@R3QUI3MSINN3R) YAYYYYYYYYY}}$
 </detalis>
 
  <details>
 <summary>$\color{#f86e90}{\text{haihaiiii my oomfs!!!!!!}}$ </summary><br>
 
-⋆˚✿˖° [Lôi](https://github.com/R3QUI3MSINN3R) [Haru](https://github.com/D3V0TION) [Liliana](https://github.com/HerWordsKill) [Namine](https://github.com/farronhart) [Andre](https://github.com/andreslopper) [Sinx](https://github.com/OlgaSinxer) [Silly](https://github.com/SillyNonbinary) [Lily](https://github.com/Lily2Love) [Ash](https://github.com/vampxasher) [Noctis](https://github.com/CrisisShow) 
+ ⋆˚✿˖° [Lôi](https://github.com/R3QUI3MSINN3R) [Haru](https://github.com/D3V0TION) [Liliana](https://github.com/HerWordsKill) [Namine](https://github.com/farronhart) [Andre](https://github.com/andreslopper) [Sinx](https://github.com/OlgaSinxer) [Silly](https://github.com/SillyNonbinary) [Lily](https://github.com/Lily2Love) [Ash](https://github.com/vampxasher) [Noctis](https://github.com/CrisisShow) 
 </details>
 
 $\color{#ff6afb}{\text{*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚}}$
