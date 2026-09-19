@@ -38,6 +38,8 @@ $\color{#ff759d}{\text{⋆˚࿔────────────────�
   
   <img width="1536" height="2048" alt="art" src="https://github.com/user-attachments/assets/51091af9-dd91-4356-847c-a4f8fb046607" />
 
+<img width="2048" height="2048" alt="art" src="https://github.com/user-attachments/assets/fe6e3f53-3ab2-4870-9fa9-a09e801b5722" />
+
 </details>
 
 $\color{#c3eeff}{\text{. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ✩₊˚.⋆☾⋆⁺₊✧ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.}}$
@@ -78,6 +80,11 @@ $\color{#7084ea}{\text{TYSM SINX (@OlgaSinxer) MY GAH}}$
 <img width="2048" height="2048" alt="art" src="https://github.com/user-attachments/assets/106400b5-09b6-4f17-a197-3d1a53921c2a" />
 
  $\color{#7084ea}{\text{OH?? I LUV MY SONA AND TYSM LÔI (@R3QUI3MSINN3R) YAYYYYYYYYY}}$
+
+ <img width="284" height="385" alt="adu" src="https://github.com/user-attachments/assets/86fa1409-b5a2-4a78-9dc3-b88796857f98" />
+
+ $\color{#7084ea}{\text{LMAO?? TY TYSM TIK ON MAGMA 👅🎀🎀}}$
+
 </details>
 
  <details>
