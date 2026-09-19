@@ -28,7 +28,7 @@ $\color{#ff759d}{\text{⋆˚࿔────────────────�
 <img width="2000" height="1200" alt="intro" src="https://github.com/user-attachments/assets/da03dbad-a391-445a-859e-10995532c658" />
 
  <details>
-<summary> $\color{#5e67a2}{my art style 🦐}}$ </summary><br>
+<summary> $\color{#5e67a2}{\text{my art style 🦐}}$ </summary><br>
   
   <img width="1536" height="2048" alt="art" src="https://github.com/user-attachments/assets/5e09a5d2-734d-4d64-b18e-cb6a5eea274e" />
 </details>
