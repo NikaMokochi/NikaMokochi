@@ -1,4 +1,4 @@
-## <div align="center"> $\color{#ffda8a}{\text{₊˚⊹♡ INTRODUCTION!! ⋆˚࿔}}$
+## <div align="center"> $\color{#ff759d}{\text{₊˚⊹♡ INTRODUCTION!! ⋆˚࿔}}$
 
 <!--
 **NikaMokochi/NikaMokochi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -63,7 +63,7 @@ $\color{#ff854a}{\text{★ˎˊ˗ Pizza Guy, Yozora and Ivan (Bad Things) by}}$ [
  $\color{#4a68ff}{\text{★ˎˊ˗ Pizza guy by}}$ [@OlgaSinxer](https://github.com/OlgaSinxer)
 </details>
 
-$\color{#a5efff}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡}}$
+$\color{#ff759d}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡}}$
 
  <details>
 <summary> $\color{#f86e90}{\text{thank for my fan Pizza Guy and my sona!!}}$ </summary><br>
