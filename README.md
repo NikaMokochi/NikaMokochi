@@ -17,7 +17,6 @@ Here are some ideas to get you started:
 
 <div align="center">
 
-soon...
 
 ![GitHub Views](https://views.igorkowalczyk.dev/api/badge/NikaMokochi?label=Pizza+for+you+yayayayyy&labelColor=ff5775&color=c93a54)
 
