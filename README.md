@@ -25,7 +25,14 @@ soon...
 
 $\color{#ff759d}{\text{⋆˚࿔───────────────────୨ৎ───────────────────₊˚⊹♡}}$
 
-[<img width="540" height="280" alt="Riku" src="https://github.com/user-attachments/assets/606484ce-a92d-466f-af73-1f6d2850165e" />](https://open.spotify.com/playlist/2tEuXKxWfOAiWdnst62ybF) $\color{#4c9ffc}{\text{⬅ u can click my fav best music! ❤︎ ..◜ᴗ◝..}}$
+<img width="2000" height="1200" alt="intro" src="https://github.com/user-attachments/assets/da03dbad-a391-445a-859e-10995532c658" />
+
+ <details>
+<summary>$\color{#5e67a2}{my art style 🦐}}$ </summary><br>
+  
+  <img width="1536" height="2048" alt="art" src="https://github.com/user-attachments/assets/5e09a5d2-734d-4d64-b18e-cb6a5eea274e" />
+
+</details>
 
 $\color{#c3eeff}{\text{. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ✩₊˚.⋆☾⋆⁺₊✧ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.}}$
 
@@ -40,8 +47,6 @@ $\color{#ff2a7f}{\text{˙⋆✮⋆˚࿔  ˚₊‧꒰ა}}$  [<img width="266" he
 </details>
 
 $\color{#ff527a}{\text{꒰১ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ໒꒱}}$
-
-<img width="2000" height="1200" alt="country" src="https://github.com/user-attachments/assets/2358d16e-f2ce-48c2-afb6-99fdfe9b999a" />
 
  <details>
 <summary> $\color{#4136c1}{\text{⋆.˚ ☾⭒. thanks gift for me!! ✮⋆˙}}$ </summary><br>
