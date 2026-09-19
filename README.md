@@ -27,7 +27,7 @@ $\color{#ff759d}{\text{⋆˚࿔────────────────�
 <img width="2000" height="1200" alt="intro" src="https://github.com/user-attachments/assets/da03dbad-a391-445a-859e-10995532c658" />
 
  <details>
-<summary> $\color{#5e67a2}{\text{my art style 🦐}}$ </summary><br>
+<summary> $\color{#f86e90}{\text{my art style 🦐}}$ </summary><br>
   
   <img width="1536" height="2048" alt="art" src="https://github.com/user-attachments/assets/5e09a5d2-734d-4d64-b18e-cb6a5eea274e" />
 
@@ -41,10 +41,10 @@ $\color{#ff759d}{\text{⋆˚࿔────────────────�
 
 </details>
 
-$\color{#c3eeff}{\text{. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ✩₊˚.⋆☾⋆⁺₊✧ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.}}$
+$\color{#ff759d}{\text{. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ✩₊˚.⋆☾⋆⁺₊✧ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.}}$
 
  <details>
-<summary> $\color{#5c52ff}{\text{⋆˚࿔ ok then... u can signs ata and sp for me! ༘⋆}}$ </summary><br>
+<summary> $\color{#f86e90}{\text{⋆˚࿔ ok then... u can signs ata and sp for me! ༘⋆}}$ </summary><br>
    
 $\color{#ff2a7f}{\text{˙⋆✮⋆˚࿔  ˚₊‧꒰ა}}$  [<img width="266" height="84" alt="Sora kh1" src="https://github.com/user-attachments/assets/5f37e68a-ad25-4fb8-b9b0-010c24ed0ba9" />
 ](https://nikamokochi.atabook.org/) $\color{#ff2a7f}{\text{✦}}$ [<img width="335" height="110" alt="help lol" src="https://github.com/user-attachments/assets/0a8b92e7-f779-4b46-a941-6f45498136c5" />
@@ -53,10 +53,10 @@ $\color{#ff2a7f}{\text{˙⋆✮⋆˚࿔  ˚₊‧꒰ა}}$  [<img width="266" he
  $\color{#ff2a7f}{\text{໒꒱ ‧₊˚ ˙⋆✮⋆˚࿔}}$
 </details>
 
-$\color{#ff527a}{\text{꒰১ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ໒꒱}}$
+$\color{#ff759d}{\text{꒰১ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ໒꒱}}$
 
  <details>
-<summary> $\color{#4136c1}{\text{⋆.˚ ☾⭒. thanks gift for me!! ✮⋆˙}}$ </summary><br>
+<summary> $\color{#f86e90}{\text{⋆.˚ ☾⭒. thanks gift for me!! ✮⋆˙}}$ </summary><br>
 
 $\color{#ff854a}{\text{★ˎˊ˗ Pizza Guy, Yozora and Ivan (Bad Things) by}}$ [@andreslopper](https://github.com/andreslopper)
 
@@ -66,23 +66,23 @@ $\color{#ff854a}{\text{★ˎˊ˗ Pizza Guy, Yozora and Ivan (Bad Things) by}}$ [
 $\color{#a5efff}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡}}$
 
  <details>
-<summary> $\color{#7084ea}{\text{thank for my fan Pizza Guy and my sona!!}}$ </summary><br>
+<summary> $\color{#f86e90}{\text{thank for my fan Pizza Guy and my sona!!}}$ </summary><br>
 
 <img width="1083" height="1087" alt="intro" src="https://github.com/user-attachments/assets/827d4f8a-b918-4f42-8c22-61de0eb4d420" />
 
-$\color{#7084ea}{\text{OH MY?? TYSM ANDRE (@andreslopper) yippeeeeee!!}}$
+$\color{#f86e90}{\text{OH MY?? TYSM ANDRE (@andreslopper) yippeeeeee!!}}$
 
 <img width="976" height="740" alt="hello" src="https://github.com/user-attachments/assets/50c2bf68-2fb3-42d6-bbbb-a9b1793db0e6" />
 
-$\color{#7084ea}{\text{TYSM SINX (@OlgaSinxer) MY GAH}}$
+$\color{#f86e90}{\text{TYSM SINX (@OlgaSinxer) MY GAH}}$
 
 <img width="2048" height="2048" alt="art" src="https://github.com/user-attachments/assets/106400b5-09b6-4f17-a197-3d1a53921c2a" />
 
- $\color{#7084ea}{\text{OH?? I LUV MY SONA AND TYSM LÔI (@R3QUI3MSINN3R) YAYYYYYYYYY}}$
+ $\color{#f86e90}{\text{OH?? I LUV MY SONA AND TYSM LÔI (@R3QUI3MSINN3R) YAYYYYYYYYY}}$
 
  <img width="284" height="385" alt="adu" src="https://github.com/user-attachments/assets/86fa1409-b5a2-4a78-9dc3-b88796857f98" />
 
- $\color{#7084ea}{\text{LMAO?? TY TYSM TIK ON MAGMA 👅🎀🎀}}$
+ $\color{#f86e90}{\text{LMAO?? TY TYSM TIK ON MAGMA 👅🎀🎀}}$
 
 </details>
 
@@ -92,4 +92,4 @@ $\color{#7084ea}{\text{TYSM SINX (@OlgaSinxer) MY GAH}}$
  ⋆˚✿˖° [Lôi](https://github.com/R3QUI3MSINN3R) / [Haru](https://github.com/D3V0TION) / [Liliana](https://github.com/HerWordsKill) / [Namine](https://github.com/farronhart) / [Andre](https://github.com/andreslopper) / [Sinx](https://github.com/OlgaSinxer) / [Silly](https://github.com/SillyNonbinary) / [Lily](https://github.com/Lily2Love) / [Ash](https://github.com/vampxasher) / [Noctis](https://github.com/CrisisShow) / [Wyniee](https://github.com/wynhniie) ⋆˚✿˖°
 </details>
 
-$\color{#ff6afb}{\text{*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚}}$
+$\color{#ff759d}{\text{*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚}}$
