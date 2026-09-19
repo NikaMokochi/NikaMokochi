@@ -34,6 +34,8 @@ $\color{#ff759d}{\text{⋆˚࿔────────────────�
 
   <img width="1536" height="2048" alt="art" src="https://github.com/user-attachments/assets/23f6c152-58a4-4196-831d-32763b11e069" />
 
+  <img width="1536" height="2048" alt="art" src="https://github.com/user-attachments/assets/305263f0-f472-43ba-a04d-d7245e481cd7" />
+
 </details>
 
 $\color{#c3eeff}{\text{. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ✩₊˚.⋆☾⋆⁺₊✧ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.}}$
