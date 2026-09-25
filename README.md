@@ -91,7 +91,7 @@ $\color{#f86e90}{\text{TYSM SINX (@OlgaSinxer) MY GAH}}$
  <details>
 <summary> $\color{#f86e90}{\text{⋆˚࿔ TYSM MY NOMINATIONS!! ༘⋆}}$ </summary><br>
 
-[(NikaMokochi is pt's Pizza Guy (Pizza Game Beta)](https://github.com/Ponytowns-rewards)
+[NikaMokochi is pt's Pizza Guy (Pizza Game Beta)](https://github.com/Ponytowns-rewards)
 </details>
   
  <details>
