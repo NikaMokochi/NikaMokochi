@@ -58,6 +58,8 @@ $\color{#ff759d}{\text{꒰১ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ
  <details>
 <summary> $\color{#f86e90}{\text{⋆.˚ ☾⭒. thanks gift for me!! ✮⋆˙}}$ </summary><br>
 
+$\color{#3e1a17}{\text{★ˎˊ˗ Việt Guy (Pizza Guy) by}}$ [@Lily2Love](https://github.com/Lily2Love)
+
 $\color{#862e31}{\text{★ˎˊ˗ Pizza GAY (Pizza Guy) by}}$ [@R3QUI3MSINN3R](https://github.com/R3QUI3MSINN3R)
 
 $\color{#ff854a}{\text{★ˎˊ˗ Pizza Guy, Yozora and Ivan (Bad Things) by}}$ [@andreslopper](https://github.com/andreslopper)
