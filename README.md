@@ -58,13 +58,13 @@ $\color{#ff759d}{\text{꒰১ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ
  <details>
 <summary> $\color{#f86e90}{\text{⋆.˚ ☾⭒. thanks gift for me!! ✮⋆˙}}$ </summary><br>
 
-$\color{#3e1a17}{\text{★ˎˊ˗ Việt Guy (Pizza Guy) by}}$ [@Lily2Love](https://github.com/Lily2Love)
+$\color{#ff2a7f}{\text{★ˎˊ˗ Việt Guy (Pizza Guy) by}}$ [@Lily2Love](https://github.com/Lily2Love)
 
-$\color{#862e31}{\text{★ˎˊ˗ Pizza GAY (Pizza Guy) by}}$ [@R3QUI3MSINN3R](https://github.com/R3QUI3MSINN3R)
+$\color{#ff2a7f}{\text{★ˎˊ˗ Pizza GAY (Pizza Guy) by}}$ [@R3QUI3MSINN3R](https://github.com/R3QUI3MSINN3R)
 
-$\color{#ff854a}{\text{★ˎˊ˗ Pizza Guy, Yozora and Ivan (Bad Things) by}}$ [@andreslopper](https://github.com/andreslopper)
+$\color{#ff2a7f}{\text{★ˎˊ˗ Pizza Guy, Yozora and Ivan (Bad Things) by}}$ [@andreslopper](https://github.com/andreslopper)
 
-$\color{#4a68ff}{\text{★ˎˊ˗ Pizza guy by}}$ [@OlgaSinxer](https://github.com/OlgaSinxer)
+$\color{#ff2a7f}{\text{★ˎˊ˗ Pizza guy by}}$ [@OlgaSinxer](https://github.com/OlgaSinxer)
 </details>
 
 $\color{#ff759d}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡}}$
