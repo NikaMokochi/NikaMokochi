@@ -26,20 +26,6 @@ $\color{#ff759d}{\text{⋆˚࿔────────────────�
 
 <img width="2000" height="1200" alt="intro" src="https://github.com/user-attachments/assets/da03dbad-a391-445a-859e-10995532c658" />
 
- <details>
-<summary> $\color{#f86e90}{\text{my art style 🦐 (WIP!! more arts again!!)}}$ </summary><br>
-  
-  <img width="1536" height="2048" alt="art" src="https://github.com/user-attachments/assets/5e09a5d2-734d-4d64-b18e-cb6a5eea274e" />
-
-  <img width="1536" height="2048" alt="art" src="https://github.com/user-attachments/assets/23f6c152-58a4-4196-831d-32763b11e069" />
-
-  <img width="1536" height="2048" alt="art" src="https://github.com/user-attachments/assets/305263f0-f472-43ba-a04d-d7245e481cd7" />
-  
-  <img width="1536" height="2048" alt="art" src="https://github.com/user-attachments/assets/51091af9-dd91-4356-847c-a4f8fb046607" />
-
-<img width="2048" height="2048" alt="art" src="https://github.com/user-attachments/assets/fe6e3f53-3ab2-4870-9fa9-a09e801b5722" />
-
-</details>
 
 $\color{#ff759d}{\text{. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ✩₊˚.⋆☾⋆⁺₊✧ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.}}$
 
