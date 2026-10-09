@@ -53,8 +53,6 @@ $\color{#ff2a7f}{\text{★ˎˊ˗ Pizza Guy, Yozora and Ivan (Bad Things) by}}$ [
 $\color{#ff2a7f}{\text{★ˎˊ˗ Pizza guy by}}$ [@OlgaSinxer](https://github.com/OlgaSinxer)
 </details>
 
-$\color{#ff759d}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡}}$
-
  <details>
 <summary> $\color{#f86e90}{\text{thank for my fan Pizza Guy and my sona!!}}$ </summary><br>
 
@@ -75,6 +73,8 @@ $\color{#f86e90}{\text{TYSM SINX (@OlgaSinxer) MY GAH}}$
  $\color{#f86e90}{\text{LMAO?? TY TYSM TIK ON MAGMA 👅🎀🎀}}$
 
 </details>
+
+$\color{#ff759d}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡}}$
 
  <details>
 <summary> $\color{#f86e90}{\text{⋆˚࿔ TYSM MY NOMINATIONS!! ༘⋆}}$ </summary><br>
