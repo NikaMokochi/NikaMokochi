@@ -24,6 +24,10 @@ Here are some ideas to get you started:
 
 $\color{#ff759d}{\text{⋆˚࿔───────────────────୨ৎ───────────────────₊˚⊹♡}}$
 
+<img width="2000" height="1200" alt="art" src="https://github.com/user-attachments/assets/03b2af2a-342c-4dd0-8336-7ed6d036a7a0" />
+
+$\color{#ff2a7f}{\text{૮ ྀིᴗ͈ . ᴗ͈ ྀིა that's my mains maybe!}}$
+
 <img width="2000" height="1200" alt="intro" src="https://github.com/user-attachments/assets/da03dbad-a391-445a-859e-10995532c658" />
 
 
