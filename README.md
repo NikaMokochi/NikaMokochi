@@ -89,7 +89,7 @@ $\color{#ff759d}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹
  <details>
 <summary> $\color{#f86e90}{\text{haihaiiii my oomfs!!!!!!}}$ </summary><br>
 
- ⋆˚✿˖° [Lôi](https://github.com/R3QUI3MSINN3R) / [Haru](https://github.com/D3V0TION) / [Liliana](https://github.com/HerWordsKill) / [Naminé](https://github.com/farronhart) / [Andre](https://github.com/andreslopper) / [Sinx](https://github.com/OlgaSinxer) / [Silly](https://github.com/SillyNonbinary) / [Lily](https://github.com/Lily2Love) / [Ash](https://github.com/vampxasher) / [Noctis](https://github.com/CrisisShow) / [Wyniee](https://github.com/wynhniie) / [Capo](https://github.com/lovingl3tters) ⋆˚✿˖°
+ ⋆˚✿˖° [Lôi](https://github.com/R3QUI3MSINN3R) / [Haru](https://github.com/D3V0TION) / [Liliana](https://github.com/HerWordsKill) / [Naminé](https://github.com/farronhart) / [Andre](https://github.com/andreslopper) / [Sinx](https://github.com/OlgaSinxer) / [Silly](https://github.com/SillyNonbinary) / [Lily](https://github.com/Lily2Love) / [Ash](https://github.com/vampxasher) / [Noctis](https://github.com/CrisisShow) / [Wyniee](https://github.com/wynhniie) / [Capo](https://github.com/lovingl3tters) / [Rain](https://github.com/Ra1ndt) ⋆˚✿˖°
 </details>
 
 $\color{#ff759d}{\text{*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚}}$
