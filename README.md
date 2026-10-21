@@ -28,6 +28,8 @@ $\color{#ff2a7f}{\text{˙⋆✮⋆˚࿔  ˚₊‧꒰ა}}$  [<img width="266" he
  $\color{#ff2a7f}{\text{໒꒱ ‧₊˚ ˙⋆✮⋆˚࿔}}$
 </details>
 
+$\color{#ff759d}{\text{. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ✩₊˚.⋆☾⋆⁺₊✧ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.}}$
+
 ![GitHub Views](https://views.igorkowalczyk.dev/api/badge/NikaMokochi?label=Pizza+for+you+yayayayyy&labelColor=ff5775&color=c93a54)
 
 <img width="2048" height="1536" alt="intro" src="https://github.com/user-attachments/assets/5777c735-de70-4b0d-9648-08d6979958a4" />
@@ -39,9 +41,6 @@ $\color{#ff759d}{\text{⋆˚࿔────────────────�
 $\color{#ff2a7f}{\text{૮ ྀིᴗ͈ . ᴗ͈ ྀིა that's my mains maybe!}}$
 
 <img width="2000" height="1200" alt="intro" src="https://github.com/user-attachments/assets/da03dbad-a391-445a-859e-10995532c658" />
-
-
-$\color{#ff759d}{\text{. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ✩₊˚.⋆☾⋆⁺₊✧ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.}}$
 
 $\color{#ff759d}{\text{꒰১ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ໒꒱}}$
 
