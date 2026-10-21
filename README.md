@@ -18,6 +18,16 @@ Here are some ideas to get you started:
 <div align="center">
 
 
+ <details>
+<summary> $\color{#f86e90}{\text{⋆˚࿔ ok then... u can signs ata and sp for me! ༘⋆}}$ </summary><br>
+   
+$\color{#ff2a7f}{\text{˙⋆✮⋆˚࿔  ˚₊‧꒰ა}}$  [<img width="266" height="84" alt="Sora kh1" src="https://github.com/user-attachments/assets/5f37e68a-ad25-4fb8-b9b0-010c24ed0ba9" />
+](https://nikamokochi.atabook.org/) $\color{#ff2a7f}{\text{✦}}$ [<img width="335" height="110" alt="help lol" src="https://github.com/user-attachments/assets/0a8b92e7-f779-4b46-a941-6f45498136c5" />
+](https://pizzanika.straw.page/) $\color{#ff2a7f}{\text{✦}}$ [<img width="238" height="91" alt="Sora kh1" src="https://github.com/user-attachments/assets/ad7f0920-513a-46f1-afe0-68dcd380c7a3" />
+](https://guns.lol/nikamokochi)  $\color{#ff2a7f}{\text{✦}}$ [<img width="432" height="158" alt="country" src="https://github.com/user-attachments/assets/7183d6a2-9f11-4db9-9c78-7c469c62ab71" />](https://pronouns.cc/@nikamokochi)
+ $\color{#ff2a7f}{\text{໒꒱ ‧₊˚ ˙⋆✮⋆˚࿔}}$
+</details>
+
 ![GitHub Views](https://views.igorkowalczyk.dev/api/badge/NikaMokochi?label=Pizza+for+you+yayayayyy&labelColor=ff5775&color=c93a54)
 
 <img width="2048" height="1536" alt="intro" src="https://github.com/user-attachments/assets/5777c735-de70-4b0d-9648-08d6979958a4" />
@@ -32,16 +42,6 @@ $\color{#ff2a7f}{\text{૮ ྀིᴗ͈ . ᴗ͈ ྀིა that's my mains maybe!}
 
 
 $\color{#ff759d}{\text{. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ✩₊˚.⋆☾⋆⁺₊✧ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.}}$
-
- <details>
-<summary> $\color{#f86e90}{\text{⋆˚࿔ ok then... u can signs ata and sp for me! ༘⋆}}$ </summary><br>
-   
-$\color{#ff2a7f}{\text{˙⋆✮⋆˚࿔  ˚₊‧꒰ა}}$  [<img width="266" height="84" alt="Sora kh1" src="https://github.com/user-attachments/assets/5f37e68a-ad25-4fb8-b9b0-010c24ed0ba9" />
-](https://nikamokochi.atabook.org/) $\color{#ff2a7f}{\text{✦}}$ [<img width="335" height="110" alt="help lol" src="https://github.com/user-attachments/assets/0a8b92e7-f779-4b46-a941-6f45498136c5" />
-](https://pizzanika.straw.page/) $\color{#ff2a7f}{\text{✦}}$ [<img width="238" height="91" alt="Sora kh1" src="https://github.com/user-attachments/assets/ad7f0920-513a-46f1-afe0-68dcd380c7a3" />
-](https://guns.lol/nikamokochi)  $\color{#ff2a7f}{\text{✦}}$ [<img width="432" height="158" alt="country" src="https://github.com/user-attachments/assets/7183d6a2-9f11-4db9-9c78-7c469c62ab71" />](https://pronouns.cc/@nikamokochi)
- $\color{#ff2a7f}{\text{໒꒱ ‧₊˚ ˙⋆✮⋆˚࿔}}$
-</details>
 
 $\color{#ff759d}{\text{꒰১ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ໒꒱}}$
 
