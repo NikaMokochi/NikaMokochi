@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 <div align="center">
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=๋࣭⭑+Welcome+to+Pizza...;๋࣭⭑+please+you+sign+my+ata+and+sp!;๋࣭⭑+bye...;๋࣭⭑+have+a+nice+day!;๋࣭⭑+oh+ofc+free+c*h!&color=ff759d)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=๋࣭⭑+Welcome+to+Pizza...;๋࣭⭑+please+you+sign+my+ata+and+sp!;๋࣭⭑+cough+okay+bye...;๋࣭⭑+have+a+nice+day!;๋࣭⭑+oh+ofc+free+c*h!&color=ff759d)](https://git.io/typing-svg)
 
  <details>
 <summary> $\color{#f86e90}{\text{⋆˚࿔ here my ata and strawpage! ༘⋆}}$ </summary><br>
