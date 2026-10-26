@@ -17,7 +17,7 @@ Here are some ideas to get you started:
 
 <div align="center">
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=welcome...;WIP)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=welcome...;wip&color=ff759d)](https://git.io/typing-svg)
 
  <details>
 <summary> $\color{#f86e90}{\text{⋆˚࿔ ok then... u can signs ata and sp for me! ༘⋆}}$ </summary><br>
