@@ -91,6 +91,9 @@ $\color{#ff759d}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹
 <summary> $\color{#f86e90}{\text{haihaiiii my oomfs!!!!!!}}$ </summary><br>
 
  ⋆˚✿˖° [Lôi](https://github.com/R3QUI3MSINN3R) / [Haru](https://github.com/D3V0TION) / [Liliana](https://github.com/HerWordsKill) / [Naminé](https://github.com/farronhart) / [Andre](https://github.com/andreslopper) / [Sinx](https://github.com/OlgaSinxer) / [Silly](https://github.com/SillyNonbinary) / [Lily](https://github.com/Lily2Love) / [Ash](https://github.com/vampxasher) / [Noctis](https://github.com/CrisisShow) / [Wyniee](https://github.com/wynhniie) / [Capo](https://github.com/lovingl3tters) / [Rain](https://github.com/Ra1ndt) ⋆˚✿˖°
+
+ <img width="549" height="442" alt="1add8202c3f771ab46ddc31f99fa1067" src="https://github.com/user-attachments/assets/46771fa4-7ca3-4be3-b817-696b6ecd0734" />
+
 </details>
 
 $\color{#ff759d}{\text{*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚}}$
