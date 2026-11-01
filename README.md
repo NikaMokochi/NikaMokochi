@@ -79,6 +79,7 @@ $\color{#f86e90}{\text{TYSM SINX (@OlgaSinxer) MY GAH}}$
 
  <img width="3072" height="4080" alt="VAIZ" src="https://github.com/user-attachments/assets/eca306e8-8ef5-41e7-a0b2-5ee5ee721946" />
 <img width="3072" height="4080" alt="GAY" src="https://github.com/user-attachments/assets/014e7601-08dd-448f-b490-9b0d56e3339a" />
+<img width="1151" height="1096" alt="VAIZ" src="https://github.com/user-attachments/assets/fadf7e37-4916-4938-ad99-2665c84ebbf0" />
 
 $\color{#f86e90}{\text{my sona bunny!! 👀👀 tysm Lily!! (@Lily2Love)}}$
 
