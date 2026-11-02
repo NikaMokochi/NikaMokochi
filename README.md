@@ -91,6 +91,10 @@ $\color{#ff759d}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹
 <summary> $\color{#f86e90}{\text{⋆˚࿔ TYSM MY NOMINATIONS!! ༘⋆}}$ </summary><br>
 
 [NikaMokochi is pt's Pizza Guy (Pizza Game Beta)](https://github.com/Ponytowns-rewards)
+
+[🐻⠀cute and kind people ⠀( •́ .̫ •̀ )⠀:
+
+@luhkliet @JEVERUS @meowpilled @NikaMokochi @HerWordsKill @OlgaSinxer @skippadonn](https://github.com/bug-town)
 </details>
   
  <details>
