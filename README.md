@@ -96,6 +96,8 @@ $\color{#ff759d}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹
 
 [NikaMokochi, the Pizza Guy of Ponytown!](https://github.com/daggerstruckmage)
 
+[಄ NikaMokochi is pony town's Pizza Guy (Pizza Game Beta).ᐟ](https://github.com/pt-everypony)
+
 </details>
   
  <details>
