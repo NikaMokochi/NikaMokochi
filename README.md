@@ -43,7 +43,7 @@ $\color{#ff759d}{\text{⋆˚࿔────────────────�
 
 $\color{#ff2a7f}{\text{૮ ྀིᴗ͈ . ᴗ͈ ྀིა that's my mains maybe!}}$
 
-<img width="2000" height="1200" alt="intro" src="https://github.com/user-attachments/assets/da03dbad-a391-445a-859e-10995532c658" />
+<img width="736" height="431" alt="Không Có Tiêu Đề24_20261120200333" src="https://github.com/user-attachments/assets/3d05af36-c33c-4241-b01e-91fe4300699d" />
 
 $\color{#ff759d}{\text{꒰১ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ໒꒱}}$
 
