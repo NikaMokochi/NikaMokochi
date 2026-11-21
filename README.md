@@ -21,6 +21,8 @@ Here are some ideas to get you started:
 
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=๋࣭⭑+Welcome+to+Pizza...;๋࣭⭑+please+you+sign+my+ata+and+sp!;๋࣭⭑+cough+okay+bye...;๋࣭⭑+have+a+nice+day!;๋࣭⭑+oh+ofc+free+c*h!&color=ff759d)](https://git.io/typing-svg)
 
+<img width="2048" height="1536" alt="Không Có Tiêu Đề25_20261121194150" src="https://github.com/user-attachments/assets/cf21b68e-c5d9-4367-b2c5-994e67f9205d" />
+
  <details>
 <summary> $\color{#f86e90}{\text{⋆˚࿔ here my ata and strawpage! ༘⋆}}$ </summary><br>
    
@@ -35,7 +37,7 @@ $\color{#ff759d}{\text{. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ �
 
 ![GitHub Views](https://views.igorkowalczyk.dev/api/badge/NikaMokochi?label=Pizza+for+you+yayayayyy&labelColor=ff5775&color=c93a54)
 
-<img width="2048" height="1536" alt="intro" src="https://github.com/user-attachments/assets/5777c735-de70-4b0d-9648-08d6979958a4" />
+<img width="2048" height="1536" alt="Không Có Tiêu Đề25_20261121194853" src="https://github.com/user-attachments/assets/0ac2c8fb-1d8e-4821-aee2-e00622b89691" />
 
 $\color{#ff759d}{\text{⋆˚࿔───────────────────୨ৎ───────────────────₊˚⊹♡}}$
 
