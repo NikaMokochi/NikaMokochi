@@ -17,6 +17,7 @@ Here are some ideas to get you started:
 
 <div align="center">
 
+<img width="736" height="431" alt="Không Có Tiêu Đề24_20261120200807" src="https://github.com/user-attachments/assets/03a7ea8d-2238-4d58-8c1e-84c7dce72f89" />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=๋࣭⭑+Welcome+to+Pizza...;๋࣭⭑+please+you+sign+my+ata+and+sp!;๋࣭⭑+cough+okay+bye...;๋࣭⭑+have+a+nice+day!;๋࣭⭑+oh+ofc+free+c*h!&color=ff759d)](https://git.io/typing-svg)
 
@@ -117,4 +118,4 @@ $\color{#ff759d}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹
 
 </details>
 
-$\color{#ff759d}{\text{*ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚}}$
+<img width="736" height="431" alt="Không Có Tiêu Đề24_20261120200816" src="https://github.com/user-attachments/assets/bbd7f293-c044-40a3-b994-85789dc418d8" />
