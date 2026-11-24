@@ -109,6 +109,8 @@ $\color{#ff759d}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹
 
 [photoshoot NikaMokochi is Pony Town’s Pizza Guy (PIZZA GAME BETA) !](https://github.com/piddlesjet)
 
+[NikaMokochi is pony town's PIZZA GUY (PIZZA GAME BETA)‼️](https://github.com/pony-town-nominations)
+
 </details>
   
  <details>
