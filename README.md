@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 <div align="center">
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=๋࣭⭑+Welcome+to+Pizza...;๋࣭⭑+please+you+sign+my+ata+and+sp!;๋࣭⭑+cough+okay+bye...;๋࣭⭑+have+a+nice+day!;๋࣭⭑+oh+ofc+free+c*h!&color=ff759d)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=๋࣭⭑+Welcome+to+Pizza...;๋࣭⭑+please+you+sign+my+ata+and+sp!;๋࣭⭑+cough+okay+bye...;๋࣭⭑+have+a+nice+day!;๋࣭⭑+oh+ofc+free+c*h!&color=F9D182)](https://git.io/typing-svg)
 
 
 ![GitHub Views](https://views.igorkowalczyk.dev/api/badge/NikaMokochi?label=Pizza+for+you+yayayayyy&labelColor=86C1B3&color=F9D182)
@@ -88,39 +88,39 @@ this is a gift for [@NikaMokochi](https://github.com/NikaMokochi) made by a nonb
 
 
  <details>
-<summary> $\color{#f86e90}{\text{⋆.˚ ☾⭒. thanks gift for me!! ✮⋆˙}}$ </summary><br>
+<summary> $\color{#F9D182}{\text{⋆.˚ ☾⭒. thanks gift for me!! ✮⋆˙}}$ </summary><br>
 
-$\color{#ff2a7f}{\text{★ˎˊ˗ Việt Guy (Pizza Guy) by}}$ [@Lily2Love](https://github.com/Lily2Love)
+$\color{#86C1B3}{\text{★ˎˊ˗ Việt Guy (Pizza Guy) by}}$ [@Lily2Love](https://github.com/Lily2Love)
 
-$\color{#ff2a7f}{\text{★ˎˊ˗ Pizza GAY (Pizza Guy) by}}$ [@R3QUI3MSINN3R](https://github.com/R3QUI3MSINN3R)
+$\color{#86C1B3}{\text{★ˎˊ˗ Pizza GAY (Pizza Guy) by}}$ [@R3QUI3MSINN3R](https://github.com/R3QUI3MSINN3R)
 
-$\color{#ff2a7f}{\text{★ˎˊ˗ Pizza Guy, Yozora and Ivan (Bad Things) by}}$ [@andreslopper](https://github.com/andreslopper)
+$\color{#86C1B3}{\text{★ˎˊ˗ Pizza Guy, Yozora and Ivan (Bad Things) by}}$ [@andreslopper](https://github.com/andreslopper)
 
-$\color{#ff2a7f}{\text{★ˎˊ˗ Pizza guy by}}$ [@OlgaSinxer](https://github.com/OlgaSinxer)
+$\color{#86C1B3}{\text{★ˎˊ˗ Pizza guy by}}$ [@OlgaSinxer](https://github.com/OlgaSinxer)
 </details>
 
  <details>
-<summary> $\color{#f86e90}{\text{thank for my fan Pizza Guy and my sona!!}}$ </summary><br>
+<summary> $\color{#F9D182}{\text{thank for my fan Pizza Guy and my sona!!}}$ </summary><br>
 
 <img width="1083" height="1087" alt="intro" src="https://github.com/user-attachments/assets/827d4f8a-b918-4f42-8c22-61de0eb4d420" />
 
-$\color{#f86e90}{\text{OH MY?? TYSM ANDRE (@andreslopper) yippeeeeee!!}}$
+$\color{#86C1B3}{\text{OH MY?? TYSM ANDRE (@andreslopper) yippeeeeee!!}}$
 
 <img width="976" height="740" alt="hello" src="https://github.com/user-attachments/assets/50c2bf68-2fb3-42d6-bbbb-a9b1793db0e6" />
 
-$\color{#f86e90}{\text{TYSM SINX (@OlgaSinxer) MY GAH}}$
+$\color{#86C1B3{\text{TYSM SINX (@OlgaSinxer) MY GAH}}$
 
 <img width="2048" height="2048" alt="art" src="https://github.com/user-attachments/assets/106400b5-09b6-4f17-a197-3d1a53921c2a" />
 
- $\color{#f86e90}{\text{OH?? I LUV MY SONA AND TYSM LÔI (@R3QUI3MSINN3R) YAYYYYYYYYY}}$
+ $\color{#86C1B3}{\text{OH?? I LUV MY SONA AND TYSM LÔI (@R3QUI3MSINN3R) YAYYYYYYYYY}}$
 
  <img width="284" height="385" alt="adu" src="https://github.com/user-attachments/assets/86fa1409-b5a2-4a78-9dc3-b88796857f98" />
 
- $\color{#f86e90}{\text{LMAO?? TY TYSM TIK ON MAGMA 👅🎀🎀}}$
+ $\color{#86C1B3}{\text{LMAO?? TY TYSM TIK ON MAGMA 👅🎀🎀}}$
 
  <img width="3072" height="4080" alt="VAIZ" src="https://github.com/user-attachments/assets/eca306e8-8ef5-41e7-a0b2-5ee5ee721946" />
 <img width="3072" height="4080" alt="GAY" src="https://github.com/user-attachments/assets/014e7601-08dd-448f-b490-9b0d56e3339a" />
 <img width="1151" height="1096" alt="VAIZ" src="https://github.com/user-attachments/assets/fadf7e37-4916-4938-ad99-2665c84ebbf0" />
 
-$\color{#f86e90}{\text{my sona bunny!! 👀👀 tysm Lily!! (@Lily2Love)}}$
+$\color{#86C1B3}{\text{my sona bunny!! 👀👀 tysm Lily!! (@Lily2Love)}}$
  </details>
