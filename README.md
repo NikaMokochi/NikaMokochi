@@ -21,7 +21,7 @@ Here are some ideas to get you started:
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=๋࣭⭑+Welcome+to+Pizza...;๋࣭⭑+please+you+sign+my+ata+and+sp!;๋࣭⭑+cough+okay+bye...;๋࣭⭑+have+a+nice+day!;๋࣭⭑+oh+ofc+free+c*h!&color=ff759d)](https://git.io/typing-svg)
 
 
-![GitHub Views](https://views.igorkowalczyk.dev/api/badge/NikaMokochi?label=Pizza+for+you+yayayayyy&labelColor=ff5775&color=c93a54)
+![GitHub Views](https://views.igorkowalczyk.dev/api/badge/NikaMokochi?label=Pizza+for+you+yayayayyy&labelColor=86C1B3&color=F9D182)
 
 
 <p align="center">
