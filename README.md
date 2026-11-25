@@ -17,37 +17,75 @@ Here are some ideas to get you started:
 
 <div align="center">
 
-<img width="736" height="431" alt="Không Có Tiêu Đề24_20261120200807" src="https://github.com/user-attachments/assets/03a7ea8d-2238-4d58-8c1e-84c7dce72f89" />
 
 [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=๋࣭⭑+Welcome+to+Pizza...;๋࣭⭑+please+you+sign+my+ata+and+sp!;๋࣭⭑+cough+okay+bye...;๋࣭⭑+have+a+nice+day!;๋࣭⭑+oh+ofc+free+c*h!&color=ff759d)](https://git.io/typing-svg)
 
-<img width="2048" height="1536" alt="Không Có Tiêu Đề25_20261121194150" src="https://github.com/user-attachments/assets/cf21b68e-c5d9-4367-b2c5-994e67f9205d" />
-
- <details>
-<summary> $\color{#f86e90}{\text{⋆˚࿔ here my ata and strawpage! ༘⋆}}$ </summary><br>
-   
-$\color{#ff2a7f}{\text{˙⋆✮⋆˚࿔  ˚₊‧꒰ა}}$  [<img width="266" height="84" alt="Sora kh1" src="https://github.com/user-attachments/assets/5f37e68a-ad25-4fb8-b9b0-010c24ed0ba9" />
-](https://nikamokochi.atabook.org/) $\color{#ff2a7f}{\text{✦}}$ [<img width="335" height="110" alt="help lol" src="https://github.com/user-attachments/assets/0a8b92e7-f779-4b46-a941-6f45498136c5" />
-](https://pizzanika.straw.page/) $\color{#ff2a7f}{\text{✦}}$ [<img width="238" height="91" alt="Sora kh1" src="https://github.com/user-attachments/assets/ad7f0920-513a-46f1-afe0-68dcd380c7a3" />
-](https://guns.lol/nikamokochi)  $\color{#ff2a7f}{\text{✦}}$ [<img width="432" height="158" alt="country" src="https://github.com/user-attachments/assets/7183d6a2-9f11-4db9-9c78-7c469c62ab71" />](https://pronouns.cc/@nikamokochi)
- $\color{#ff2a7f}{\text{໒꒱ ‧₊˚ ˙⋆✮⋆˚࿔}}$
-</details>
-
-$\color{#ff759d}{\text{. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. ✩₊˚.⋆☾⋆⁺₊✧ . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁. . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.}}$
 
 ![GitHub Views](https://views.igorkowalczyk.dev/api/badge/NikaMokochi?label=Pizza+for+you+yayayayyy&labelColor=ff5775&color=c93a54)
 
-<img width="2048" height="1536" alt="Không Có Tiêu Đề25_20261121194853" src="https://github.com/user-attachments/assets/0ac2c8fb-1d8e-4821-aee2-e00622b89691" />
 
-$\color{#ff759d}{\text{⋆˚࿔───────────────────୨ৎ───────────────────₊˚⊹♡}}$
+<p align="center">
+  <img  src="https://i.postimg.cc/RF688B6k/Khong-Co-Tieu-De108-20261124142415.png">
+</p>
+<p align="center">$\textcolor{#F9D182}{\text{ 𝗇𝗂𝗄𝖺 }}$ $\color{#3C1F15}{\text{ / }}$ $\textcolor{#C8A074}{\text{ 𝗅𝖺𝗏𝗂𝖾 }}$</p>
 
-<img width="2000" height="1200" alt="art" src="https://github.com/user-attachments/assets/03b2af2a-342c-4dd0-8336-7ed6d036a7a0" />
+<p align="center">
+  <img src="https://i.postimg.cc/T2bZGgCd/Khong-Co-Tieu-De109-20261124155701.png">
+</p>
 
-$\color{#ff2a7f}{\text{૮ ྀིᴗ͈ . ᴗ͈ ྀིა that's my mains maybe!}}$
+<img align="left" src="https://i.postimg.cc/7ZNyMw0K/Khong-Co-Tieu-De103-20261121101310-gradient-map-custom-(1).png/300/200" alt="image" />
 
-<img width="736" height="431" alt="Không Có Tiêu Đề24_20261120200333" src="https://github.com/user-attachments/assets/3d05af36-c33c-4241-b01e-91fe4300699d" />
+$\color{#FDDD8A}{\text{bad english + grammarㅤㅤㅤeng , vie , kor ㅤㅤㅤproud vietnamese !}}$
 
-$\color{#ff759d}{\text{꒰১ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔⏔ ໒꒱}}$
+$\color{#D69560}{\text{ juneㅤ20th ㅤㅤㅤ sheherㅤ/ㅤtheythem}}$
+
+$\color{#86C1B3}{\text{ bisexㅤ+ㅤlesbo ㅤㅤㅤㅤㅤ demigirl ㅤ+ㅤgenderfluid }}$
+
+
+<img align="right" src="https://i.postimg.cc/1Xxp1JQr/Khong-Co-Tieu-De104-20261121101413-gradient-map-custom-(1).png" alt="image" />
+
+$\color{#86C1B3}{\text{ pizzaguy ㅤ,ㅤ guest1337 ㅤ,ㅤ noctis ㅤ,ㅤ cloud ㅤㅤㅤyume♡ }}$
+
+<details><summary>$\color{#D69560}{\text{ social ㅤㅤㅤlinks ㅤㅤㅤ! }}$</summary>
+
+
+[<img alt="moe moeee kyun kyunnnn" src="https://i.postimg.cc/9QWy2LDK/Khong-Co-Tieu-De111-20261124190353.png" />](https://pronouns.cc/@nikamokochi)
+
+[<img alt="coding suck ASS" src="https://i.postimg.cc/cCy8bhqh/Khong-Co-Tieu-De112-20261124190409.png" />
+](https://pizzanika.straw.page/)
+
+[<img alt="youre a fucking chud nika" src="https://i.postimg.cc/j5V5xj8S/Khong-Co-Tieu-De113-20261124190424.png" />
+](https://nikamokochi.atabook.org/) 
+
+[<img alt="fat little chud" src="https://i.postimg.cc/WzNJV33F/Khong-Co-Tieu-De114-20261124193225.png" />](https://guns.lol/nikamokochi)
+
+</details>
+
+<details><summary> $\color{#FDDD8A}{\text{ friends ㅤㅤㅤ/ㅤㅤㅤ oomfs }}$ </summary> 
+  
+[liliana](https://github.com/HerWordsKill)ㅤㅤㅤ[naminé](https://github.com/farronhart) ㅤㅤㅤ[andre](https://github.com/andreslopper) ㅤㅤㅤ[sinx](https://github.com/OlgaSinxer) ㅤㅤㅤ[silly](https://github.com/SillyNonbinary) ㅤㅤㅤ[lily](https://github.com/Lily2Love) ㅤㅤㅤ[ash](https://github.com/vampxasher) ㅤㅤㅤ[noctis](https://github.com/CrisisShow) ㅤㅤㅤ[wyniee](https://github.com/wynhniee) ㅤㅤㅤ[markus](https://github.com/lovingl3tters) ㅤㅤㅤ[rain](https://github.com/Ra1ndt)
+ㅤㅤ
+$\textcolor{#FDDD8A}{\text{ and ㅤㅤㅤmore ㅤㅤㅤwithout ㅤㅤㅤgithub ♡ }}$
+
+</details>
+
+<p align="center">
+  <img src="https://i.postimg.cc/T2bZGgCd/Khong-Co-Tieu-De109-20261124155701.png">
+</p>
+
+<img align="left" src="https://i.postimg.cc/G28c6Tvj/Khong-Co-Tieu-De102-20261121100723-gradient-map-custom-(1).png" alt="image" />
+
+<details><summary>🍕 $\color{#FDDD8A}{\text{nominations}}$ </summary>
+  
+[ponytown-rewards](https://github.com/Ponytown-rewards) ㅤㅤㅤ[bug-town](https://github.com/bug-town) ㅤㅤㅤ[daggerstruckmage](https://github.com/daggerstruckmage) ㅤㅤㅤ[pt-everypony](https://github.com/pt-everypony) ㅤㅤㅤ[pt-of-forsaken](https://github.com/pt-of-forsaken) ㅤㅤㅤ[knox-event](https://github.com/Knox-Event) ㅤㅤㅤ[pt-ship-nominations](https://github.com/pt-ship-nominations) ㅤㅤㅤ[piddlesjet](https://github.com/piddlesjet)
+</details>
+
+<p align="center">
+  <img src="https://i.postimg.cc/T2bZGgCd/Khong-Co-Tieu-De109-20261124155701.png">
+</p>
+
+this is a gift for [@NikaMokochi](https://github.com/NikaMokochi) made by a nonbinary demon who serves in a mansion and is called [@andreslopper](https://github.com/andreslopper) 😨
+
 
  <details>
 <summary> $\color{#f86e90}{\text{⋆.˚ ☾⭒. thanks gift for me!! ✮⋆˙}}$ </summary><br>
@@ -85,41 +123,4 @@ $\color{#f86e90}{\text{TYSM SINX (@OlgaSinxer) MY GAH}}$
 <img width="1151" height="1096" alt="VAIZ" src="https://github.com/user-attachments/assets/fadf7e37-4916-4938-ad99-2665c84ebbf0" />
 
 $\color{#f86e90}{\text{my sona bunny!! 👀👀 tysm Lily!! (@Lily2Love)}}$
-
-</details>
-
-$\color{#ff759d}{\text{°‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡ ⊹ ࣪ ﹏𓊝﹏𓂁﹏⊹ ࣪ ˖ °‧ 𓆝 𓆟 𓆞 ·｡ °‧ 𓆝 𓆟 𓆞 ·｡}}$
-
- <details>
-<summary> $\color{#f86e90}{\text{⋆˚࿔ TYSM MY NOMINATIONS!! ༘⋆}}$ </summary><br>
-
-[NikaMokochi is pt's Pizza Guy (Pizza Game Beta)](https://github.com/Ponytowns-rewards)
-
-[🐻⠀cute and kind people ⠀( •́ .̫ •̀ )⠀: @NikaMokochi](https://github.com/bug-town)
-
-[NikaMokochi, the Pizza Guy of Ponytown!](https://github.com/daggerstruckmage)
-
-[಄ NikaMokochi is pony town's Pizza Guy (Pizza Game Beta).ᐟ](https://github.com/pt-everypony)
-
-[@NikaMokochi : ponytowns Pizza guy from pizza game beta!](https://github.com/pt-of-forsaken)
-
-[꒰🍕꒱ @𝐍𝐢𝐤𝐚𝐌𝐨𝐤𝐨𝐜𝐡𝐢 𝐢𝐬 𝐊𝐧𝐨𝐱 𝐄𝐯𝐞𝐧𝐭’𝐬 𝐏𝐢𝐳𝐳𝐚 𝐆𝐮𝐲! [𝐏𝐢𝐳𝐳𝐚 𝐆𝐚𝐦𝐞 𝐁𝐞𝐭𝐚]](https://github.com/Knox-Event)
-
-[@NikaMokochi as Ponytown's ⋆━ Pizza Guy! - Pizza Guy Beta](https://github.com/pt-ship-nominations)
-
-[photoshoot NikaMokochi is Pony Town’s Pizza Guy (PIZZA GAME BETA) !](https://github.com/piddlesjet)
-
-[NikaMokochi is pony town's PIZZA GUY (PIZZA GAME BETA)‼️](https://github.com/pony-town-nominations)
-
-</details>
-  
- <details>
-<summary> $\color{#f86e90}{\text{haihaiiii my oomfs!!!!!!}}$ </summary><br>
-
- ⋆˚✿˖° [Lôi](https://github.com/R3QUI3MSINN3R) (I know some last time he remove friends/follower me...) / [Liliana](https://github.com/HerWordsKill) / [Naminé](https://github.com/farronhart) / [Andre](https://github.com/andreslopper) / [Sinx](https://github.com/OlgaSinxer) / [Silly](https://github.com/SillyNonbinary) / [Lily](https://github.com/Lily2Love) / [Ash](https://github.com/vampxasher) / [Noctis](https://github.com/CrisisShow) / [Wyniee](https://github.com/wynhniie) / [Markus](https://github.com/lovingl3tters) / [Rain](https://github.com/Ra1ndt) ⋆˚✿˖°
-
- <img width="549" height="442" alt="1add8202c3f771ab46ddc31f99fa1067" src="https://github.com/user-attachments/assets/46771fa4-7ca3-4be3-b817-696b6ecd0734" />
-
-</details>
-
-<img width="736" height="431" alt="Không Có Tiêu Đề24_20261120200816" src="https://github.com/user-attachments/assets/bbd7f293-c044-40a3-b994-85789dc418d8" />
+ </details>
