@@ -84,7 +84,7 @@ $\textcolor{#FDDD8A}{\text{ and ㅤㅤㅤmore ㅤㅤㅤwithout ㅤㅤㅤgithub �
   <img src="https://i.postimg.cc/T2bZGgCd/Khong-Co-Tieu-De109-20261124155701.png">
 </p>
 
-this is a gift for [@NikaMokochi](https://github.com/NikaMokochi) made by a nonbinary demon who serves in a mansion and is called [@andreslopper](https://github.com/andreslopper) 😨
+$\color{#F9D182}{\text{made by}}$ [@andreslopper](https://github.com/andreslopper) $\color{#F9D182}{\text{!!}}$
 
 
  <details>
