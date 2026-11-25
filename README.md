@@ -1,4 +1,4 @@
-## <div align="center"> $\color{#ff759d}{\text{₊˚⊹♡ INTRODUCTION!! ⋆˚࿔}}$
+## <div align="center"> $\color{#3C1F15}{\text{₊˚⊹♡ INTRODUCTION!! ⋆˚࿔}}$
 
 <!--
 **NikaMokochi/NikaMokochi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
