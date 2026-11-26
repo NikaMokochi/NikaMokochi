@@ -77,7 +77,7 @@ $\textcolor{#FDDD8A}{\text{ and ㅤㅤㅤmore ㅤㅤㅤwithout ㅤㅤㅤgithub �
 
 <details><summary>🍕 $\color{#FDDD8A}{\text{nominations}}$ </summary>
   
-[ponytown-rewards](https://github.com/Ponytown-rewards) ㅤㅤㅤ[bug-town](https://github.com/bug-town) ㅤㅤㅤ[daggerstruckmage](https://github.com/daggerstruckmage) ㅤㅤㅤ[pt-everypony](https://github.com/pt-everypony) ㅤㅤㅤ[pt-of-forsaken](https://github.com/pt-of-forsaken) ㅤㅤㅤ[knox-event](https://github.com/Knox-Event) ㅤㅤㅤ[pt-ship-nominations](https://github.com/pt-ship-nominations) ㅤㅤㅤ[piddlesjet](https://github.com/piddlesjet) ㅤㅤㅤ[pony-town-nominations](https://github.com/pony-town-nominations) </details>
+[ponytown-rewards](https://github.com/Ponytown-rewards) ㅤㅤㅤ[bug-town](https://github.com/bug-town) ㅤㅤㅤ[daggerstruckmage](https://github.com/daggerstruckmage) ㅤㅤㅤ[pt-everypony](https://github.com/pt-everypony) ㅤㅤㅤ[pt-of-forsaken](https://github.com/pt-of-forsaken) ㅤㅤㅤ[knox-event](https://github.com/Knox-Event) ㅤㅤㅤ[pt-ship-nominations](https://github.com/pt-ship-nominations) ㅤㅤㅤ[piddlesjet](https://github.com/piddlesjet) ㅤㅤㅤ[pony-town-nominations](https://github.com/pony-town-nominations) ㅤㅤㅤ[pt-walk-of-fame](https://github.com/pt-walk-of-fame) </details>
 
 <p align="center">
   <img src="https://i.postimg.cc/T2bZGgCd/Khong-Co-Tieu-De109-20261124155701.png">
