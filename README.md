@@ -1,27 +1,14 @@
 ## <div align="center"> $\color{#3C1F15}{\text{₊˚⊹♡ INTRODUCTION!! ⋆˚࿔}}$
 
-<!--
-**NikaMokochi/NikaMokochi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
 
 <div align="center">
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=๋࣭⭑+Welcome+to+Pizza...;๋࣭⭑+please+you+sign+my+ata+and+sp!;๋࣭⭑+cough+okay+bye...;๋࣭⭑+have+a+nice+day!;๋࣭⭑+oh+ofc+free+c*h!&color=F9D182)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=๋࣭⭑+Welcome+to+the+Pizzeria...;๋࣭⭑+please+sign+my+ata+and+sp!;๋࣭⭑+coughs...;๋࣭⭑+have+a+nice+day!;๋࣭⭑+free+to+c*h+anytime!;bye+and+have+a+nice+day+!!!&color=F9D182)](https://git.io/typing-svg)
 
 
-![GitHub Views](https://views.igorkowalczyk.dev/api/badge/NikaMokochi?label=Pizza+for+you+yayayayyy&labelColor=86C1B3&color=F9D182)
+![GitHub Views](https://views.igorkowalczyk.dev/api/badge/NikaMokochi?label=Pizza+for+you+and+You!&labelColor=86C1B3&color=F9D182)
 
 
 <p align="center">
@@ -79,15 +66,8 @@ $\textcolor{#FDDD8A}{\text{ and ㅤㅤㅤmore ㅤㅤㅤwithout ㅤㅤㅤgithub �
   
 [ponytown-rewards](https://github.com/Ponytown-rewards) ㅤㅤㅤ[bug-town](https://github.com/bug-town) ㅤㅤㅤ[daggerstruckmage](https://github.com/daggerstruckmage) ㅤㅤㅤ[pt-everypony](https://github.com/pt-everypony) ㅤㅤㅤ[pt-of-forsaken](https://github.com/pt-of-forsaken) ㅤㅤㅤ[knox-event](https://github.com/Knox-Event) ㅤㅤㅤ[pt-ship-nominations](https://github.com/pt-ship-nominations) ㅤㅤㅤ[piddlesjet](https://github.com/piddlesjet) ㅤㅤㅤ[pony-town-nominations](https://github.com/pony-town-nominations) </details>
 
-<p align="center">
-  <img src="https://i.postimg.cc/T2bZGgCd/Khong-Co-Tieu-De109-20261124155701.png">
-</p>
-
-$\color{#F9D182}{\text{made by}}$ [@andreslopper](https://github.com/andreslopper) $\color{#F9D182}{\text{!!}}$
-
-
  <details>
-<summary> $\color{#F9D182}{\text{⋆.˚ ☾⭒. thanks gift for me!! ✮⋆˙}}$ </summary><br>
+<summary> $\color{#F9D182}{\text{ skins that i got gifted!!}}$ </summary><br>
 
 $\color{#86C1B3}{\text{★ˎˊ˗ Việt Guy (Pizza Guy) by}}$ [@Lily2Love](https://github.com/Lily2Love)
 
@@ -99,7 +79,7 @@ $\color{#86C1B3}{\text{★ˎˊ˗ Pizza guy by}}$ [@OlgaSinxer](https://github.co
 </details>
 
  <details>
-<summary> $\color{#F9D182}{\text{thank for my fan Pizza Guy and my sona!!}}$ </summary><br>
+<summary> $\color{#F9D182}{\text{thanks for the Pizza Guy and my sona fanarts!!}}$ </summary><br>
 
 <img width="1083" height="1087" alt="intro" src="https://github.com/user-attachments/assets/827d4f8a-b918-4f42-8c22-61de0eb4d420" />
 
@@ -123,3 +103,9 @@ $\color{#86C1B3{\text{TYSM SINX (@OlgaSinxer) MY GAH}}$
 
 $\color{#86C1B3}{\text{my sona bunny!! 👀👀 tysm Lily!! (@Lily2Love)}}$
  </details>
+
+<p align="center">
+  <img src="https://i.postimg.cc/T2bZGgCd/Khong-Co-Tieu-De109-20261124155701.png">
+</p>
+
+$\color{#F9D182}{\text{made by}}$ [@andreslopper](https://github.com/andreslopper) $\color{#F9D182}{\text{!!}}$
