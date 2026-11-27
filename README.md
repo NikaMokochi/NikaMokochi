@@ -107,7 +107,7 @@ $\color{#86C1B3}{\text{OH MY?? TYSM ANDRE (@andreslopper) yippeeeeee!!}}$
 
 <img width="976" height="740" alt="hello" src="https://github.com/user-attachments/assets/50c2bf68-2fb3-42d6-bbbb-a9b1793db0e6" />
 
-$\color{#86C1B3{\text{TYSM SINX (@OlgaSinxer) MY GAH}}$
+ $\color{#86C1B3{\text{TYSM SINX (@OlgaSinxer) MY GAH}}$
 
 <img width="2048" height="2048" alt="art" src="https://github.com/user-attachments/assets/106400b5-09b6-4f17-a197-3d1a53921c2a" />
 
